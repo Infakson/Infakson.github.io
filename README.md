@@ -7,3 +7,4 @@ I am just testing this code so yea website isn't fully completed yet
 
 [Youtube](https://www.youtube.com/)
 
+[Instagram](https://www.instagram.com/Infakson)

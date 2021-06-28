@@ -4,4 +4,4 @@
 
 [Youtube](https://www.youtube.com/)
 
-@infakson :+1: Website looks pretty good - :pleading_face:
+@Infakson 👍 Website looks pretty good - 🥺

@@ -4,6 +4,4 @@
 
 [Youtube](https://www.youtube.com/)
 
-[Instagram](https://www.instagram.com/Infakson)
-
 [ ] Website Made

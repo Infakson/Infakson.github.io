@@ -1,4 +1,4 @@
 # infakson.github.io
-Hi Retards
+*Hi Retards
 
-I am just testing this code so yea website isn't fully completed yet
+**I am just testing this code so yea website isn't fully completed yet

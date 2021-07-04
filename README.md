@@ -1,5 +1,5 @@
 # Infakson
-## Name: "Harsh Verma"
+# Name: "Harsh Verma"
 
 
 [Youtube](https://www.youtube.com/)
@@ -13,4 +13,4 @@
 
 [](https://github.com/octo-org/octo-repo/issues/740)
 
-[ ] appreciate me 🥺
+appreciate me 🥺 on [Instagram](https://www.instagram.com/infakson/)
